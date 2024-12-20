@@ -1,2 +1,2 @@
-# Egravouil.github.io
+# Delsocks.github.io
 readme.mdma ƪ(σ_⦣σ)ʃ
